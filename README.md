@@ -8,4 +8,4 @@ I’m currently learning Blockchain development, Social Media Growth, and Decent
 
  Pronouns: He/Him
 
- Fun fact: I can turn complex crypto ideas into simple, engaging stories that anyone can understand  Also I Like To Tell Storytelling In X 
+ Fun fact:  Iam Not Active In GitHub Mostly Active In X...I can turn complex crypto ideas into simple, engaging stories that anyone can understand  Also I Like To Tell Storytelling In X 
