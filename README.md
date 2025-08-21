@@ -1,12 +1,11 @@
-- 👋 Hi, I’m @Rohith20051104
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+I’m interested in Web3, DeFi,  Social media content creator,Community Building, and Crypto Projects 
 
-<!---
-Rohith20051104/Rohith20051104 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+I’m currently learning Blockchain development, Social Media Growth, and Decentralized Systems
+
+ I’m looking to collaborate on Web3 communities, crypto content, and open-source projects in DeFi/Blockchain
+
+ How to reach me:Twitter https://x.com/SHINCHANNN0 | rohith20051104@gmail.com
+
+ Pronouns: He/Him
+
+ Fun fact: I can turn complex crypto ideas into simple, engaging stories that anyone can understand  Also I Like To Tell Storytelling In X 
